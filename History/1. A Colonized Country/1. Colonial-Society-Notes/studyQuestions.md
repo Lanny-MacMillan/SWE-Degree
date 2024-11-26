@@ -1,4 +1,4 @@
-**Q - This proclamation issued by King George III designated the western boundary for colonial settlement. A direct result of Pontiacs War, its purpose was to prevent colonists from moving onto Native American lands**
+** Q - This proclamation issued by King George III designated the western boundary for colonial settlement. A direct result of Pontiacs War, its purpose was to prevent colonists from moving onto Native American lands **
 A - What is the Royal Proclamtion of 1763?
 
 **Q - This rebellion against the brittish began in 1763 as a reaction to changes in trade policy. It ranged from the Great Lakes down to Virginia because the leader formed alliances with many tribes.**
